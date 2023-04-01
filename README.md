@@ -1,5 +1,5 @@
 # 💫About Me :
-At work, I engineer my days to make an impact. Backed by 5+ years of website design and development experience in multiple industries and running a micro-digital marketing agency, I have a passion for growth, helping my team, and teaching.
+At work, I engineer my days to make an impact. Backed by 5+ years of website design and development experience in multiple industries and freelancing, I have a passion for growth, helping my team, and teaching.
 
 
 ## 🌐Socials
